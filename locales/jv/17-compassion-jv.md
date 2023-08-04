@@ -1,0 +1,9 @@
+# Rencana 17. Welas Asih (daya)
+
+Karep iku salah siji saka kuwalitas gaib ing pamuter, supaya kuwat ngangkat wong saka chakra kapindho kanggo kawolu, kanggo bidang saka Absolute. Welas asih mbukak kapasitas kanggo empati supaya ego kesapu dening gelombang raos banget kuat sing nangis bungah ngebaki mripat lan jantung deg-degan ing admiration lan katresnan kosmik. Kanggo wayahe, pemain dadi siji karo Ilahi.
+
+Karep minangka salah sawijining manifestasi sing paling positif saka kemampuan kanggo ndeleng kemungkinan khayalan, sing minangka karakteristik chakra kapindho. Negara karep digawe nalika empati diarahake marang wong-wong sing tumindak diarahake marang pemain. Lan tinimbang nggebug maneh ("mripat kanggo mripat"), dheweke "ngowahi pipi liyane."
+
+Imajinasi ngidini pemain mbayangno motif sing bisa ditindakake kanggo tumindak wong liya. Dheweke weruh yen wong liya uga bisa lara utawa gelo dening awake dhewe utawa wong liya. Dheweke ngerti yen dheweke lan liyane minangka pemain ing game kosmik sing makna lan aturane ngluwihi tingkat pemahaman sing saiki. Dheweke ngerti yen ana negara liyane sing luwih dhuwur sing ngidini wong bisa ngadili tumindake wong liya. Pangerten sing welas asih iki ngidini dheweke ngapura wong liya. Iki mbebasake eling saka identifikasi diri, lan dheweke mabur menyang pesawat Absolute.
+
+Ana pangandikane basa Sansekerta: "Daya (karep) iku dhasaring Dharma (kabeneran). Tanpa kualitas iki, religiusitas sejati mung mokal. Karep, kebecikan, sabar ing kabeh wektu nyumbang kanggo pangembangan awal apik ing wong, mbantu wong kanggo ngresiki emosi, mbentuk karakter lan pembangunan etika. Rintangan pribadine rusak lan pikirane pemain dadi bayangan saka Ilahi. Welas asih yaiku nilar diri. Nanging, ora bisa mbebasake pemain saka karma akumulasi, mula saiki kudu muter mati nganti disengat ula ing alun-alun tamogun, ngidini dheweke bali menyang bumi kanggo ngrampungake misi.

@@ -1,0 +1,7 @@
+# Plan 21. Sühne (Samana Papa)
+
+Aus den Einflussbereichen materieller und sinnlicher Impulse heraustretend, erkennt der Spieler, dass er bei der Befriedigung dieser Wünsche anderen schaden könnte. Auf der Suche nach Befriedigung handelte er blind, ohne über die Konsequenzen nachzudenken. Als er das Reich der Erlösung betritt, sieht er, dass er einen ungerechten Weg eingeschlagen hat und durch den Einsatz ungerechter Mittel ungünstige Schwingungen in sich selbst erzeugt hat, die nun das Erreichen des inneren Friedens verhindern.
+
+Auf der Suche nach dem verlorenen Gleichgewicht kommt der Spieler zur Reue und versucht, seine Fehler zu korrigieren. Dies ist eine Zeit großer emotionaler Verwirrung. Der Spieler verspürt ein akutes und bedrückendes Verlangen, sein negatives Karma zu reinigen und sich von Lastern zu befreien. Erlösung ist auch für diejenigen notwendig, die sich, nachdem sie die Ebene des dritten Chakras erreicht haben, noch nicht vom Einfluss des zweiten befreit haben. Ein solcher Spieler hat ein schlechtes Gewissen, weil er sich nicht an ein höheres Vibrationsniveau gewöhnen kann.
+
+In beiden Fällen führt Reue zu positiven Ergebnissen und sorgt für einen Aufwärtsstrom der Energie. Der Spieler büßt seine Fehler ein, indem er dem Gesetz des Dharma folgt, das die wahre Natur aller Dinge und Phänomene darstellt. Sühne stimmt auf dieses allumfassende Gesetz ein, das auf dem Spielbrett durch die nächste Zelle dargestellt wird.

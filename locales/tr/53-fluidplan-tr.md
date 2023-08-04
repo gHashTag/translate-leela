@@ -1,0 +1,7 @@
+# Plan 53. Sıvı Planı (Jala Loka)
+
+Su doğası gereği soğuktur, ısıyı emer, serinlik getirir. Altıncı çakranın çilecilik ısısı, kemer sıkma, oyuncuyu acımasız yapar. Şiddetin yakıcı enerjisini söndürmek ve onu ruhsal sevginin eşit sıcaklığına dönüştürmek için sıvı düzlemin berrak sularından geçmesi gerekiyor.
+
+Beş elementten biri olan su, varlığın bağlayıcısıdır. İnsan vücudu esas olarak sudan oluşur. Suyun derin olduğu veya hiç olmadığı kurak bölgelerde, toprak kırılgan hale gelir ve çatlar ve biz buna kum deriz. Kum su tutmaz. Kumun içinden hızla akar çünkü tek tek kum taneleri nemi tutamaz. Dünya çoraklaşır, neredeyse yaşamdan yoksun kalır. Bu nedenle su, toprağın verimliliğinden ve bitkilerin büyümesinden de sorumludur. Büyümenin itici gücü ısıdır, ateştir. Rengi ve şekli yaratan odur, su ise dengeyi. Su, formu birbirine bağlar ve ateşi besleyen enerjidir. Böylece su ile beslenen ateş, dünyaya, gezegenin yüzeyinde var olan çeşitli yaşam biçimlerinde kendini gösteren hayati bir enerji verir.
+
+Suyun kendi formu yoktur, bulunduğu kabın şeklini alır. Bu aynı zamanda altıncı çakra oyuncusunun ana özelliğidir - egoya aykırı olan şey olma yeteneği. Gerçek oyun, oyuncu kimliğini kaybettiğinde başlar. Altıncı çakradan ve biçimsiz olma yeteneğinin ortaya çıkmasından önce, oyuncu paranın, cinsiyetin, gücün, karmanın ve bilgi arayışının tutsağıydı. Oyun, bilgi zaten elde edildiğinde ve oyuncuyu formla özdeşleştirme yanılsaması ortadan kalktığında altıncı çakrada başlar.

@@ -1,0 +1,11 @@
+# Plano 62 Felicidade (sukha)
+
+O equilíbrio da química do corpo e da mente é a felicidade. Sukha, ou felicidade, é o estado que o jogador alcança ao discernir (viveka) ou cantar Om, alcançando o samadhi e mantendo um intelecto positivo.
+
+A felicidade, ou sukha, chega ao jogador quando sua mente lhe diz que ele está muito próximo do objetivo, dando-lhe a confiança de que está se aproximando da libertação. Os sentimentos que ele experimenta são indescritíveis, não podem ser descritos em palavras. Ele sente a felicidade que o rio sente quando se junta ao oceano depois de viajar mil milhas. É a sensação de fusão com sua fonte.
+
+Se, estando em um estado tão feliz, o jogador não negligenciar seu carma, não se tornar preguiçoso e passivo, ele terá uma chance real de alcançar a Consciência Cósmica durante esta vida. Mas se ele está tão dominado pela experiência da felicidade que esquece a necessidade de agir, sentindo que sua missão está próxima do fim, a cobra de tamas, espreitando perto dele, está pronta para engoli-lo, devolvendo sua energia ao nível do primeiro chacra.
+
+A numerologia do jogo nos diz que, para atingir seu objetivo, ele precisa novamente tirar um seis, assim como precisou de um seis para nascer e entrar no jogo. Mas se ele se tornar preguiçoso, se lhe parecer que não há mais nada a ser feito, então tamas e ilusão estão escondidos aqui. A verdadeira felicidade pertence ao jogador que mantém o equilíbrio enquanto se aproxima do gol. O jogo é importante como um todo. Seu intelecto estável permite que ele veja claramente a forma do fluxo, o fluxo do Dharma. Ele aceita tudo que a vida lhe apresenta. Não há nada que ele rejeitaria. Mesmo que ele tenha alcançado o 8º plano e tenha que voltar à Terra novamente, ele ainda fica feliz em saber do objetivo que pode ser alcançado por ele.
+
+A verdadeira felicidade pertence ao jogador que mantém o equilíbrio enquanto se aproxima do gol. O jogo é importante como um todo. Seu intelecto estável permite que ele veja claramente a forma do fluxo, o fluxo do Dharma. Ele aceita tudo que a vida lhe apresenta. Não há nada que ele rejeitaria. Mesmo que ele tenha alcançado o 8º plano e tenha que voltar à Terra novamente, ele ainda fica feliz em saber do objetivo que pode ser alcançado por ele.

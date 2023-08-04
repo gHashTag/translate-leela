@@ -1,0 +1,9 @@
+# Plano 13. Insignificância (antariksha)
+
+Antariksha é o plano situado entre o plano físico e os céus (svarga-loka). Aqui o jogador está em estado "suspenso": nem no céu nem na terra, aliás, em nada.
+
+A insignificância é uma condição diretamente relacionada à inteligência negativa instável. Quando o jogador deixa de perceber o propósito de sua existência, sentimentos de abandono (medo existencial) e futilidade preenchem sua consciência. Ele não vê sentido em se comunicar com ninguém. E a falta de vitalidade, acompanhada da mais aguda sensação de vazio interior, o faz correr, sem encontrar lugar para si. Ele está em constante negatividade e ansiedade.
+
+A insignificância é uma das características inerentes ao segundo chakra e é a causa da instabilidade e da ansiedade. Tudo ao redor perde seu significado. A autoidentificação da personalidade é completamente perdida e, como resultado, o equilíbrio da esfera mental é perturbado. Tudo isso devido à falta de energia necessária para uma permanência harmoniosa neste plano. A difusão da força vital para os objetos dos sentidos é um grande problema no nível do segundo chakra. O jogador pode pousar em um espaço vazio após o primeiro encontro com o entretenimento, o plano sensual, a auto-importância ou a ganância. Se ele vem do primeiro chakra, pode já ter experimentado as alegrias da purificação ou do entretenimento, mas a pequena quantidade de energia que possuía é desperdiçada muito rapidamente. E agora ele está confuso. As metas que ele estabeleceu para si mesmo ainda estão lá, mas ele não vê sentido nelas. Ele não vê sentido em nada.
+
+No entanto, o estado de insignificância não é de forma alguma eterno. Assim que o jogador começar a reabastecer seus recursos de energia, ele estará pronto para continuar jogando quando for sua vez de jogar o dado.

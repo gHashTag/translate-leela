@@ -1,0 +1,7 @@
+# Plan 36. Klarheit des Geistes (Svaccha)
+
+Klarheit des Geistes ist das Licht, das den Spieler erfüllt, wenn er die vierte Ebene verlässt, um die fünfte zu betreten, wo der Mensch zum Menschen wird. Im Sanskrit bedeutet das Wort Svaccha „rein, klar, transparent“. Diese Transparenz ist das Ergebnis des Reinigungsprozesses, den der Spieler im Naraka Loka durchläuft.
+
+Transparenz bedeutet, dass das Licht nicht behindert wird. Wenn alle Zweifel ausgeräumt sind, löst sich der Schleier des blinden Intellekts auf und wird durch das reine und kraftvolle Licht der inneren Empfindung ersetzt. Das intellektuelle Verständnis, das die ersten drei Zentren dominiert, verlässt die Bühne. Hier wird das Denken als ein Mangel, als eine Krankheit des Bewusstseins betrachtet. Wenn sich das Bewusstsein mit dem Verstehen identifiziert, leidet es an der Krankheit der Rationalität, den Fesseln des Intellekts. Hingabe und Glaube helfen, diesen Zustand zu überwinden, und der Spieler betritt die Ebene des Seins.
+
+Beim Betreten des Svaccha-Feldes wird der Spieler rein und transparent. Er wurde von Zweifeln überwältigt, die dazu führten, dass er vom Weg der wahren Religiosität abkam oder im Fegefeuer landete. Aber diese Erfahrung brachte ihm ein Verständnis für Sudharma. Er entwickelte gute Neigungen und heiligte sein Leben. Er hat die Ebenen des Aromas und des Geschmacks besucht und ist nun bereit, sich dem aufwärts gerichteten Energiefluss anzuschließen, der ihn zum fünften Chakra führt.

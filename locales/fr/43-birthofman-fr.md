@@ -1,0 +1,7 @@
+# Plan 43. Naissance de l'homme (manushya-janma)
+
+Passer par le plan d'Agni prépare le joueur à prendre forme (naissance). Manushya-janma marque l'achèvement de cet événement. Conçu dans le deuxième chakra, nourri et élevé dans le troisième, rempli d'émotions humaines dans le quatrième, le joueur est maintenant prêt à naître.
+
+Cette naissance n'est enregistrée ni à la maternité ni au cabinet. Mais ceux qui le rencontrent peuvent dire plus tard : « Nous avons vu l'Homme. A propos du joueur qui est ici, on ne peut pas dire qu'il est le fils de quelqu'un. N'importe qui peut être son père. Il est le fils de Dieu, et seulement Son Unique. Il n'appartient à aucune caste, croyance, nation, religion. Il est libre de tout attachement et n'a besoin d'aucun document prouvant son identité. Il s'est trouvé. Maintenant, il est né en tant qu'humain, et sa présence est ressentie par tous ceux qui n'attendent qu'une telle naissance. Il a une perception directe de la vérité, regardant la réalité en face. Il a perdu tout intérêt à garder ses groupes d'adeptes et n'a besoin de la faveur de personne. Il ne se rapporte qu'à la vérité, et le service de la vérité devient son unique but.
+
+L'homme est un être rationnel. Ce don de la raison l'aide à corréler toutes ses pensées, paroles et actions avec la vérité. Celui dont la vie est en contradiction avec les vraies lois n'a pas pleinement le droit d'être appelé un homme. C'est un autre être vivant dans un corps humain et s'efforçant de naître en tant qu'être humain.

@@ -1,0 +1,7 @@
+# Rencana 69. Rencana Mutlak (Brahma-loka)
+
+Ing satunggalipun Vaikuntha loka punika Rudra loka, lan ing sisih sanèsipun Brahma loka. Bebarengan mbentuk triad Brahma, Wisnu lan Siwa ing tengah baris ndhuwur papan dolanan. Pesawat iki ndhuwur kabeh pesawat tumitah, pitung pesawat utama uga kabeh liyane, ditandhani utawa ora ditandhani ing Papan game. Mahat uga dadi unsur utama ing kene. Wong-wong sing wis bosok ing bebener manggon kene tanpa wedi bali sakteruse kanggo nepaki peran karma. Praktek welas asih uga teka mrene, padha manggon ing padunungane Brahma tanpa wedi.
+
+Brahma minangka pangripta jagad material, prinsip aktif noumenon, kekuwatan sing ngowahi kesadaran dadi bentuk lan refleksi sing ora kaetung. Papan panggonane yaiku Brahma-loka. Pamuter sing tekan panggonan iki merges karo daya Absolute iki, prinsip subtle iki. Brahma minangka organizer materi, nemtokake hukum pembangunan kanggo wangun digawe.
+
+Sanajan Brahma Loka dumunung ing jejere pesawat Kesadaran Cosmic, Brahma ora bisa menehi kebebasan pemain. Game kudu terus. Brahma nemtokake wangun game, nanging ana liyane saka wangun. Mung Bebener bisa mimpin pamuter kanggo mardika. Lan saiki telu gunas nunggu dheweke ing ngarep, lan ula sing cocog karo bedhil tamo cepet utawa mengko bali pemain menyang Ibu Bumi. Dheweke mudhun menyang tingkat chakra kaping enem, nanging saiki dheweke duwe pangerten babagan prinsip game sing dipikolehi ing Brahma-loka. Lan iki bisa mbantu dheweke nggayuh tujuane, ing bumi. Path pengabdian spiritual nunggu dheweke ing kadohan siji muter mati.

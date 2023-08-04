@@ -1,0 +1,7 @@
+# Rencana 43. Lairipun manungsa (manushya-janma)
+
+Ngliwati pesawat Agni nyiapake pemain kanggo njupuk wangun (lair). Manushya-janma minangka tandha rampunge acara iki. Disusun ing chakra kapindho, dipakani lan digedhekake ing katelu, diisi karo emosi manungsa ing kaping papat, pemain saiki wis siyap lair.
+
+Lair iki ora didaftar ing rumah sakit bersalin utawa ing kantor. Nanging wong-wong sing ketemu karo dheweke mengko bisa ngomong: "Kita wis ndeleng Manungsa iku." Babagan pemain sing ana ing kene, ora bisa diarani yen dheweke putrane wong liya. Sapa wae bisa dadi bapake. Panjenengané iku Putraning Allah, lan mung Kang Tunggal. Dheweke ora kalebu kasta, agama, bangsa, agama. Dheweke bebas saka lampiran lan ora mbutuhake dokumen sing mbuktekake identitase. Dheweke nemokake awake dhewe. Saiki dheweke wis lair dadi Manungsa, lan anane dirasakake dening kabeh sing mung ngenteni lair kaya ngono. Dheweke duwe persepsi langsung babagan bebener, ndeleng kasunyatan langsung ing pasuryan. Dheweke wis kelangan minat kanggo njaga klompok pengikute lan ora butuh bantuan sapa wae. Dheweke mung gegayutan karo bebener, lan layanan bebener dadi tujuane.
+
+Manungsa iku makhluk sing rasional. Kanugrahan nalar iki mbantu dheweke nggathukake kabeh pikirane, tembung lan tumindak karo bebener. Wong sing uripe bertentangan karo hukum sing sejatine ora duwe hak kanggo diarani wong lanang. Iki minangka makhluk liya sing urip ing awak manungsa lan ngupayakake lair dadi manungsa.

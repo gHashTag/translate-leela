@@ -1,0 +1,15 @@
+# Plan 46 Diskriminierung (Viveka)
+
+Alles, was in der phänomenalen Welt existiert, ist nicht Realität. Wahrnehmungsobjekte verändern sich im Laufe der Zeit, sie entwickeln sich, wachsen und zerfallen. Aber diese Objekte der Sinneswahrnehmung erzeugen eine völlige Illusion der Realität. Der Mensch legt großen Wert auf die objektive Welt und entwickelt den Wunsch, sich mit Objekten der Sinneswahrnehmung zu identifizieren. Viveka oder Unterscheidungskraft ist die Kraft, die ihn davor bewahrt, dem Wunsch nach materieller Bindung zu verfallen. Dies ist die Stimme der inneren Weisheit des Spielers, die es ihm ermöglicht, das Subtile vom Groben zu unterscheiden und das Noumenon in jedem Phänomen zu sehen.
+
+Viveca konnte früher nicht im Spiel erscheinen. Der Spieler kann hierher nur gelangen, indem er das Feld des richtigen Wissens durchläuft (45). Wenn der Spieler den Pfeil des richtigen Wissens trifft, steigt er sofort auf die Ebene des kosmischen Guten auf. Andernfalls muss er auf die Fähigkeit der Diskriminierung zurückgreifen, um den weiteren Verlauf des Spiels zu bestimmen.
+
+Die Grundelemente der Phänomenwelt liegen auf den Ebenen bis zum fünften Chakra. Dies sind die Bausteine, die die Grundlage für alle groben Manifestationen bilden. Das Vorhandensein dieser Elemente bestimmt die Schwingungsebene des Spielers, solange seine Handlungen von diesen Chakren ausgehen. Aber das sechste Chakra liegt außerhalb dieser Elemente. Jetzt beeinflusst die manifestierte Maya das Bewusstsein des Spielers nur geringfügig.
+
+Wenn ein Spieler das Feld der Unterscheidung betritt, wird er sofort auf die Ebene des Glücks im siebten Chakra transportiert. Im siebten Chakra befindet sich der Spieler jenseits aller Arten von Gewalt, was die Ursache für wahres Glück ist. Aber das sechste Chakra ist immer noch da, und hier ist Unterscheidungsvermögen erforderlich. Das sechste Chakra wird traditionell als „Drittes Auge“ bezeichnet. Unsere beiden Augen sehen nur das, was existiert, was in der Vergangenheit war und was in der Gegenwart ist. Und das „Dritte Auge“ gibt die Kraft, zukünftige Chancen im Spiel zu erkennen, und dies ist eine der wertvollen Eigenschaften des sechsten Chakras: die Fähigkeit, in die Zukunft einzudringen. Und das ist keine Fantasie, sondern eine direkte Wahrnehmung dessen, was passieren wird.
+
+Viveka-Diskriminierung entwickelt sich nicht in einem flüchtigen Leben in uns. Es nutzt die Erfahrungen, die Generationen großer Menschenmassen gesammelt haben und die im kollektiven Unbewussten enthalten sind. Somit steht dem Spieler ein Erfahrungsschatz zur Verfügung, der sich nun auf einer bewussten Ebene befindet.
+
+Diskriminierung ist der Lehrer, der oben im Kopf jedes Spielers sitzt (das siebte Chakra) und ihn durch das Leben führt. Der Spieler kann soziale und politische Gesetze umgehen, aber der Stimme von Viveca zu entkommen, ist letztlich unmöglich.
+
+Bis der Spieler das sechste Chakra erreicht, bedeutet ihm das Wort „Diskriminierung“ wenig. Aber der Durchgang durch das sechste Chakra wird durch den Fall der Karma-Würfel und die Eingebungen der inneren Stimme von Viveka bestimmt.

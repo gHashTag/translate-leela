@@ -1,0 +1,9 @@
+# Plan 13. Insignifiance (antariksha)
+
+Antariksha est le plan situé entre le plan physique et les cieux (svarga-loka). Ici, le joueur est dans un état "suspendu": ni au ciel ni sur terre, en fait, dans rien.
+
+L'insignifiance est une condition directement liée à l'intelligence négative instable. Lorsque le joueur cesse de réaliser le but de son existence, des sentiments d'abandon (peur existentielle) et de futilité remplissent sa conscience. Il ne voit aucun intérêt à communiquer avec qui que ce soit. Et le manque de vitalité, accompagné du sentiment le plus aigu de vide intérieur, le fait se précipiter, ne trouvant pas de place pour lui-même. Il est constamment dans la négativité et l'anxiété.
+
+L'insignifiance est l'une des caractéristiques inhérentes au deuxième chakra et est la cause de l'instabilité et de l'anxiété. Tout autour perd son sens. L'auto-identification de la personnalité est complètement perdue et, par conséquent, l'équilibre de la sphère mentale est perturbé. Tout cela est dû à un manque d'énergie nécessaire à un séjour harmonieux sur ce plan. La diffusion de la force vitale vers les objets des sens est un problème majeur au niveau du deuxième chakra. Le joueur peut atterrir sur un espace vide après la première rencontre avec le divertissement, le plan sensuel, la suffisance ou la cupidité. S'il vient ici du premier chakra, il a peut-être déjà connu les joies de la purification ou du divertissement, mais le peu d'énergie qu'il possédait se perd trop vite. Et maintenant il est confus. Les objectifs qu'il s'était fixés auparavant sont toujours là, mais il n'y voit aucun intérêt. Il ne voit aucun intérêt à quoi que ce soit.
+
+Cependant, l'état d'insignifiance n'est en aucun cas éternel. Une fois que le joueur commence à reconstituer ses ressources énergétiques, il est prêt à continuer à jouer au moment où c'est à son tour de lancer le dé.

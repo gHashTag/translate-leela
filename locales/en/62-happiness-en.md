@@ -1,0 +1,11 @@
+# Plan 62 Happiness (sukha)
+
+The balance of body and mind chemistry is happiness. Sukha, or happiness, is the state that the player achieves by discerning (viveka) or chanting Om, achieving samadhi, and maintaining a positive intellect.
+
+Happiness, or sukha, comes to the player when his mind tells him that he is very close to the goal, giving him confidence that he is getting closer to liberation. The feelings that he experiences are indescribable, they cannot be described in words. He feels the happiness that the river feels when it joins the ocean after traveling a thousand miles. It is the feeling of merging with your source.
+
+If, being in such a happy state, the player does not neglect his karma, does not become lazy and passive, he has a real chance to achieve Cosmic Consciousness during this lifetime. But if he is so overwhelmed by the experience of happiness that he forgets the need to act, feeling that his mission is close to the end, the snake of tamas, lurking near him, is ready to swallow him, returning his energy to the level of the first chakra.
+
+The numerology of the game tells us that in order to achieve his goal, he again needs to roll a six, just as he needed a six in order to be born and enter the game. But if he becomes lazy, if it seems to him that there is nothing more to be done, then tamas and illusion are hidden here. True happiness belongs to the player who maintains balance while approaching the goal. The game is important as a whole. His stable intellect enables him to clearly see the form of the flow, the flow of Dharma. He accepts everything that life presents him. There is nothing that he would reject. Even if he has reached the 8th plane and has to return to earth again, he is still happy knowing about the goal that can be achieved by him.
+
+True happiness belongs to the player who maintains balance while approaching the goal. The game is important as a whole. His stable intellect enables him to clearly see the form of the flow, the flow of Dharma. He accepts everything that life presents him. There is nothing that he would reject. Even if he has reached the 8th plane and has to return to earth again, he is still happy knowing about the goal that can be achieved by him.

@@ -1,0 +1,9 @@
+# Plan 71. Rajogun
+
+Rajoguna ist Aktivität im Bewusstsein oder aktives Bewusstsein. Der Spieler, der die achte Reihe erreicht hat, aber bei seinem Versuch, das kosmische Bewusstsein zu verwirklichen, gescheitert ist, wird von den Kräften des Karmas, der Aktivität, vorangetrieben. Diese Tätigkeit ist die Ursache allen Leidens, sie setzt die Anwesenheit eines Handelnden voraus, der unweigerlich seinen Ambitionen und der Erwartung der Früchte der Tätigkeit zum Opfer fällt. Jedes Hindernis auf dem Weg zum gewünschten Ziel verursacht Schmerz und Leid. Das Überwiegen von Rajoguna führt unweigerlich zu Schmerzen und Qualen.
+
+Im Samadhi löst der Spieler Rajoguna in Sattvaguna auf und wird reines Licht – Sattva. Die Beständigkeit des Rajoguna verhindert den Eintritt in Samadhi, und Tamas zieht den Spieler zurück zur Erde, während Karma neue Schwingungsfrequenzen einbezieht und erzeugt, die, wenn sie Gestalt annehmen, zum Gegenstand des Spiels werden.
+
+Als Guna gleicht Rajoguna Sattva und Tamas aus. Sattva und Tamas sind die extremen Manifestationen von Energie in Form von Gunas und neigen dazu, einander zu dominieren. Rajas stellt ein Gleichgewicht der Extreme her, ohne das diese Welt aus Vergnügen und Schmerz, Namen und Formen nicht existieren könnte. Keines der Gunas kann für sich allein existieren.
+
+Rajoguna herrscht von drei Stunden nach Sonnenaufgang bis zum Abend, wenn die Sonne unterzugehen beginnt. In dieser Zeit wird alles auf der Erde aktiv, alles ist in Aktivitäten zur Erhaltung des Lebens einbezogen. Rajogush lenkt die Aufmerksamkeit einer Person auf die Außenwelt; Wenn es nach innen gerichtet ist, wird Rajoguna zu einem inneren Dialog. Ohne die Umwandlung von Tamas in Sattva sind die höheren Bewusstseinszustände unerreichbar. Dennoch kann man während der Aktivitäten in Sattva bleiben, indem man Rajoguna in der sattvischen Arbeit verwendet.

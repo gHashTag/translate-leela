@@ -1,0 +1,7 @@
+# Plan 69. Mutlak Planı (Brahma-loka)
+
+Vaikuntha lokasının bir tarafında Rudra lokası, diğer tarafında ise Brahma lokası bulunur. Birlikte oyun tahtasının en üst sırasının ortasında Brahma, Vishnu ve Shiva üçlüsünü oluştururlar. Bu düzlem, oyun tahtası üzerinde işaretlenmiş veya işaretlenmemiş tüm diğerlerinin yanı sıra, tüm yaratım planlarının, yedi ana planın üzerindedir. Mahat da burada ana unsur olarak görev yapıyor. Gerçeğe sıkı sıkıya bağlı olanlar, daha sonra karmik rolleri yerine getirmeye geri dönme korkusu olmadan burada yaşarlar. Merhamet uygulayıcıları da buraya gelirler, Brahma'nın meskeninde korkusuzca kalırlar.
+
+Brahma, maddi dünyanın yaratıcısı, numen'in aktif ilkesi, bilinci sayısız biçime ve yansımaya dönüştüren güçtür. Onun meskeni Brahma-loka'dır. Bu yere ulaşan oyuncu, bu mutlak güçle, bu incelikli prensiple bütünleşir. Brahma, yaratılan formlar için gelişme yasalarını belirleyen, maddenin düzenleyicisidir.
+
+Brahma Loka, Kozmik Bilinç düzleminin yanında yer alsa da, Brahma oyuncuya özgürlük veremez. Oyun devam etmeli. Brahma oyunun biçimini belirler ama bunda biçimden daha fazlası vardır. Yalnızca Gerçek, oyuncuyu özgürlüğe götürebilir. Ve şimdi üç guna ileride onu bekliyor ve tamo silahına karşılık gelen yılan er ya da geç oyuncuyu Toprak Ana'ya geri getiriyor. Altıncı çakranın seviyesine iner, ama şimdi Brahma-loka'da edindiği oyunun ilkelerine dair bir anlayışla silahlanmıştır. Bu da onun dünyadaki amacına ulaşmasına yardımcı olabilir. Manevi bağlılığın yolu onu bir zar atışı mesafesinde bekliyor.

@@ -1,0 +1,11 @@
+# Kế hoạch 62 Hạnh phúc (sukha)
+
+Sự cân bằng hóa học của cơ thể và tâm trí là hạnh phúc. Sukha, hay hạnh phúc, là trạng thái mà người chơi đạt được bằng cách phân biệt (viveka) hoặc niệm Om, đạt được định và duy trì trí tuệ tích cực.
+
+Hạnh phúc, hay sukha, đến với người chơi khi tâm trí anh ta nói với anh ta rằng anh ta đang ở rất gần mục tiêu, khiến anh ta tự tin rằng mình đang tiến gần hơn đến sự giải thoát. Những cảm giác mà anh ấy trải qua thật khó tả, không thể diễn tả bằng lời. Anh ta cảm nhận được niềm hạnh phúc mà dòng sông cảm nhận được khi hòa vào đại dương sau khi du hành hàng ngàn dặm. Đó là cảm giác hợp nhất với nguồn của bạn.
+
+Nếu trong trạng thái hạnh phúc như vậy, người chơi không lơ là với nghiệp chướng của mình, không trở nên lười biếng và thụ động, thì anh ta có cơ hội thực sự để đạt được Tâm thức vũ trụ trong suốt cuộc đời này. Nhưng nếu anh ta bị choáng ngợp bởi trải nghiệm hạnh phúc đến nỗi anh ta quên mất cần phải hành động, cảm thấy rằng nhiệm vụ của mình sắp kết thúc, thì con rắn tamas, ẩn nấp gần anh ta, sẵn sàng nuốt chửng anh ta, trả lại năng lượng cho anh ta. của luân xa đầu tiên.
+
+Số học của trò chơi cho chúng ta biết rằng để đạt được mục tiêu của mình, anh ta lại cần tung con sáu, giống như anh ta cần con sáu để được sinh ra và tham gia trò chơi. Nhưng nếu anh ta trở nên lười biếng, nếu đối với anh ta dường như không còn gì để làm nữa, thì tamas và ảo ảnh đang ẩn náu ở đây. Hạnh phúc thực sự thuộc về cầu thủ giữ được thăng bằng khi tiếp cận khung thành. Trò chơi là quan trọng như một toàn thể. Trí tuệ vững vàng của vị ấy giúp vị ấy thấy rõ hình tướng của dòng chảy, dòng chảy của Giáo Pháp. Anh ấy chấp nhận mọi thứ mà cuộc sống mang lại cho anh ấy. Không có gì mà anh ấy sẽ từ chối. Ngay cả khi anh ta đã đạt đến tầng thứ 8 và phải quay trở lại trái đất một lần nữa, anh ta vẫn hạnh phúc khi biết về mục tiêu mà anh ta có thể đạt được.
+
+Hạnh phúc thực sự thuộc về cầu thủ giữ được thăng bằng khi tiếp cận khung thành. Trò chơi là quan trọng như một toàn thể. Trí tuệ vững vàng của vị ấy giúp vị ấy thấy rõ hình tướng của dòng chảy, dòng chảy của Giáo Pháp. Anh ấy chấp nhận mọi thứ mà cuộc sống mang lại cho anh ấy. Không có gì mà anh ấy sẽ từ chối. Ngay cả khi anh ta đã đạt đến tầng thứ 8 và phải quay trở lại trái đất một lần nữa, anh ta vẫn hạnh phúc khi biết về mục tiêu mà anh ta có thể đạt được.

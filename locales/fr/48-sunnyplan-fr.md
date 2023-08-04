@@ -1,0 +1,15 @@
+# Plan 48. Plan solaire (yamuna)
+
+Dans le sixième chakra, le joueur établit un équilibre entre le principe masculin, solaire et le principe féminin, lunaire. Cette fusion harmonieuse d'éléments crée un moi observateur qui n'est ni masculin ni féminin, mais une combinaison harmonieuse des deux.
+
+Le plan solaire est le plan énergétique masculin. Tant que le joueur se sent soit un homme, soit une femme, il n'est pas en mesure d'accepter la nature contraire en lui-même, de même qu'aucun joueur sur le terrain n'est en mesure d'évaluer ses propres actions, puisque son attachement au jeu et sa son rôle exclut la possibilité d'une perception objective. En même temps, une personne agissant comme arbitre, étant en dehors du jeu, est libre de tout intérêt personnel. Il n'est affilié à aucune des équipes. C'est un observateur indépendant qui est capable de voir les erreurs et les violations des règles commises par les joueurs.
+
+Lorsqu'un joueur dont les vibrations sont au niveau des chakras inférieurs est affecté par le plan solaire, sa première impulsion est la destruction, la force, l'auto-identification. Trop de soleil pourrait brûler la planète entière. Pour équilibrer le Soleil, la Lune est nécessaire. Le joueur qui arrive ici, après avoir traversé les champs de la sagesse et de la connaissance correcte, comprend cela et apprend à équilibrer les flux de ses énergies.
+
+Sous le sixième chakra, les énergies solaire et lunaire sont entrelacées, mais ici elles fusionnent et ne font qu'un. Ce sentiment d'un tout caractérise le plan de l'ascèse.
+
+Pour mieux comprendre la nature de l'énergie solaire et lunaire et leur fonction dans le corps humain, considérons l'exemple suivant d'une batterie électrique. Comme une batterie, les êtres humains ont une anode et une cathode, des pôles positifs et négatifs. Lorsque les deux sont placés dans une solution capable de conduire le courant, de l'électricité est produite. L'anode est chargée positivement et est généralement en cuivre. Le cuivre est de couleur rouge et est un métal solaire associé au signe de feu de Mars. Pour la cathode, on utilise du zinc - un métal lunaire, d'une couleur blanc-bleu brillant. Les charges électriques sont collectées autour de l'anode. Il symbolise le principe électrique (mâle) dans le corps humain.
+
+Dans le corps humain, le nerf pingala est le même que le yamuna, le plan solaire. L'énergie solaire est directement liée à la narine droite. Lorsque la narine droite domine dans la respiration, le pingala prédomine, ce qui est associé à de légers changements au cours des processus biochimiques, de la respiration et du pouls. Pingala est la source d'énergie de toutes les activités créatives. Quand on est sous son influence, la méditation devient impossible. Dans les techniques de pranayama yogique, la "respiration solaire" est souvent prescrite. Cela signifie simplement respirer par la narine droite.
+
+La Yamuna (Jamna) est l'une des trois rivières sacrées qui se rejoignent à Prayag Raj (aujourd'hui Allahabad) dans la province de l'Uttar Pradesh, au nord de l'Inde. Krishna est né sur les rives de la Yamuna.

@@ -1,0 +1,11 @@
+# Plan 62 Felicidad (sukha)
+
+El equilibrio de la química del cuerpo y la mente es la felicidad. Sukha, o felicidad, es el estado que el jugador logra discerniendo (viveka) o cantando Om, logrando samadhi y manteniendo un intelecto positivo.
+
+La felicidad, o sukha, llega al jugador cuando su mente le dice que está muy cerca de la meta, dándole confianza de que se está acercando a la liberación. Los sentimientos que experimenta son indescriptibles, no se pueden describir con palabras. Siente la felicidad que siente el río cuando se une al océano después de viajar mil millas. Es la sensación de fusionarse con tu fuente.
+
+Si, estando en tal estado feliz, el jugador no descuida su karma, no se vuelve perezoso y pasivo, tiene una oportunidad real de alcanzar la Conciencia Cósmica durante esta vida. Pero si está tan abrumado por la experiencia de la felicidad que olvida la necesidad de actuar, sintiendo que su misión está cerca del final, la serpiente de tamas, acechando cerca de él, está lista para tragarlo, devolviendo su energía al nivel. del primer chakra.
+
+La numerología del juego nos dice que para lograr su objetivo, nuevamente necesita sacar un seis, así como necesitó un seis para nacer y entrar al juego. Pero si se vuelve perezoso, si le parece que ya no hay nada más que hacer, entonces tamas y la ilusión se esconden aquí. La verdadera felicidad pertenece al jugador que mantiene el equilibrio mientras se acerca a la meta. El juego es importante como un todo. Su intelecto estable le permite ver claramente la forma del flujo, el flujo del Dharma. Acepta todo lo que la vida le presenta. No hay nada que él rechazaría. Incluso si ha alcanzado el octavo plano y tiene que regresar a la tierra nuevamente, todavía está feliz de saber sobre la meta que puede lograr.
+
+La verdadera felicidad pertenece al jugador que mantiene el equilibrio mientras se acerca a la meta. El juego es importante como un todo. Su intelecto estable le permite ver claramente la forma del flujo, el flujo del Dharma. Acepta todo lo que la vida le presenta. No hay nada que él rechazaría. Incluso si ha alcanzado el octavo plano y tiene que regresar a la tierra nuevamente, todavía está feliz de saber sobre la meta que puede lograr.

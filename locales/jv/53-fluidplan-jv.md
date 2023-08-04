@@ -1,0 +1,7 @@
+# Rencana 53. Rencana Cairan (Jala Loka)
+
+Banyu iku alam kadhemen, nyerep panas, nggawa adhem. Panas saka tapa chakra enem, austerities, ndadekake pemain kejem. Dheweke kudu ngliwati banyu sing cetha saka pesawat cair supaya bisa mateni energi kekerasan sing kobong lan ngowahi dadi anget katresnan spiritual.
+
+Banyu, salah siji saka limang unsur, minangka pengikat makhluk. Awak manungsa utamané kasusun saka banyu. Ing wilayah garing, ing ngendi banyu jero utawa ora ana, bumi dadi rapuh lan retak, lan diarani wedhi. Wedhi ora nahan banyu. Iku mili cepet liwat wedhi, amarga wedhi individu ora bisa nahan Kelembapan. Bumi dadi tandus, meh ora ana urip. Banyu uga tanggung jawab kanggo kesuburan bumi lan tuwuhing tanduran. Daya pendorong wutah dhewe yaiku panas, geni. Dheweke sing nggawe warna lan wujud, dene banyu nambah stabilitas. Banyu ngubungake wujud lan minangka energi sing nyedhiyakake geni. Mangkono, geni, dipakani dening banyu, menehi bumi energi penting, kang manifests dhewe ing macem-macem wangun urip sing ana ing lumahing planet.
+
+Banyu ora duwe wujud dhewe, njupuk wujud saka prau kang dumunung. Iki uga minangka properti utama pemain chakra kaping enem - kemampuan kanggo dadi sing nalisir ego. Game nyata diwiwiti nalika pemain ilang identitas minangka pemain. Sadurunge chakra kaping enem lan munculé kemampuan kanggo dadi tanpa wujud, pemain kasebut minangka tawanan dhuwit, jinis, kekuwatan, karma lan golek kawruh. Game kasebut diwiwiti ing chakra kaping enem, nalika kawruh wis dipikolehi, lan khayalan ngenali pemain kanthi wujud wis ilang.

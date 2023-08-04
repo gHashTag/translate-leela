@@ -1,0 +1,9 @@
+# Plan 24. Mauvaise compagnie (ku-sang-loka)
+
+A la recherche d'une auto-identification caractéristique du troisième chakra, le joueur recherche un groupe d'autres personnes pouvant le soutenir. Il se rend compte que seul, il est trop faible pour réaliser ses plans, et il cherche d'autres personnes suivant un chemin similaire pour créer un groupe de personnes partageant les mêmes idées.
+
+Si ses vibrations sont défavorables, il tombe dans la société des personnes qui s'écartent des lois du Dharma dans leurs actions. C'est la "mauvaise compagnie", et le joueur piqué par le serpent revient au premier chakra dans le domaine de la vanité.
+
+Dans une telle société, les mauvais traits de caractère du joueur sont soit ignorés soit, pire encore, loués. La force générée par le groupe sert de terreau à l'ego et à la suffisance du joueur. Pensant que ses actions sont conformes au Dharma, il se trompe constamment. Et plus il dévie, plus sa vanité devient forte. Bientôt, il se trouvera peut-être de nouveau au niveau du premier chakra et devra rechercher la purification ou le divertissement.
+
+En mauvaise compagnie, l'opinion est généralement maintenue que la cause des problèmes personnels est les personnes ou la société environnantes. L'exemple le plus frappant est celui des groupes de terroristes qui recourent à tous les moyens pour parvenir à leurs fins. Justifiant leurs actions par des objectifs nobles, ils ne font que s'induire en erreur. Ils pensent que tuer certaines personnes peut satisfaire leurs désirs. Ils croient aveuglément que leurs objectifs sont les seuls bons objectifs pour tout le monde. Cette déviation du Dharma est un grossier abus de pouvoir, l'un des principaux problèmes au niveau du troisième chakra. L'association avec une mauvaise compagnie est un adharma qui mène à la chute. Ce n'est qu'en suivant attentivement les principes du Dharma que le joueur peut éviter ce piège.

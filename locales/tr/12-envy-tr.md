@@ -1,0 +1,7 @@
+# Plan 12. Kıskançlık (irasya)
+
+Kıskançlık tahtadaki ilk yılandır. Oyuncuyu, açgözlülük düzleminin ilk seviyesine ve birinci çakranın diğer tüm özelliklerine geri döndürerek sokar. Kıskançlık hücresine yerleştirildiğinde, oyuncu özgüven eksikliği yaşar ve arzularını yenmek için birinci çakraya özgü bir stratejiye başvurur. Bu yılan, oyuncuyu tekrar tekrar sokarak geri dönmesine neden olur, bu da oyun sırasında zihinlerini boşaltmaya hizmet eder.
+
+Hayat oyununda enerji aşağıdan yukarıya doğru hareket eder. Oyuncu, aşağıda yüzleşmek zorunda olduğu sorunlardan uzaklaşarak, alt katları terk edip zirveye ulaşma çabasındadır.
+
+Bununla birlikte, böyle bir konum, oyunun en önemli ilkelerinden birine aykırıdır, çünkü oyuncu, karması nereye götürürse götürsün, üstte ve altta rolünü uyumlu bir şekilde yerine getirmek zorundadır. Ancak kimse altta kalmak istemez. Oyuncunun titreşimleri uyumsuz hale gelince yılanların etkisi altına girerek alt seviyelere düşer. Yukarı ve aşağı tüm hareketleri zarda attığı sayıya göre belirlenir. Kişi kıskançlığın etkisi altına girdiğinde enerjisi düşer. Karmik koşulların tesadüfen ikinci çakra düzlemine düştü, ama gerçekten burada kalmayı hak etmiyor. Aslında, kişiliğinde kalan olumsuz titreşimler nedeniyle bu düzlemde kalamaz. Böyle anlarda oyuncu, dengesini kaybetmeden daha yükseklerde kalabilenleri kıskanıyor. Kıskançlık, oyuncunun negatif karmasının yeni unsurlarını fark etmesi ve üzerinde çalışması gereken birinci çakranın seviyesine düşmesine neden olan olumsuz tepkidir.

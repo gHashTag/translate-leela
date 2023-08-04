@@ -1,0 +1,9 @@
+# Plan 49. Ay planı (ganga)
+
+Bu düzleme giren oyuncu kendini dişi manyetik enerjinin kaynağında bulur. Burada omurganın sol tarafında yer alan ida-nadi sinirinin etkisi altındadır. İda, dişil (besleyici) doğasına uygun olarak vücudun beslenme kaynağı olarak kabul edilir. Bir kadın her zaman çekici ve çekiciyken, bir erkek heyecanlı ve güç doludur.
+
+İnsandaki manyetik enerji, psişik enerji ile yakından bağlantılıdır. Daha fazla psişik enerji yaratabilen bir oyuncu böylece, bu gücün etkisi altına girenleri kendisine çeken kişisel bir çekicilik geliştirir. Manyetizma aslında dengenin bir tezahürüdür. Manyetik kuvvet, bu enerjiyi depolayabilen herhangi bir maddenin kuzey ve güney kutuplarının etkileşimi ile oluşur. Bir kutuptan diğerine enerji akışı engellenmediği zaman bir manyetik alan oluşur. Aynı şekilde kişi sol burun deliğinden nefesin baskın olduğu bir zamanda meditasyon yaparsa, sürekli bir psişik enerji akışı olur.
+
+Oyuncu meditasyon yoluyla ay düzlemine girer. Burada dişil ilkeyi anlıyor. Hem dolunay sırasındaki insan duygularının gelgitlerinin hem de denizdeki gelgitlerin, manyetizması tüm gezegene yayılan ayın etkisinin sonucu olduğunu öğrenir. Ay döngüleri ile delilik arasındaki bağlantı bilinmesine rağmen, ay düzlemine giren bir oyuncunun korkacak hiçbir şeyi yoktur. Bu seviyede, tüm enerji birdir ve dişil enerji yıkıcı doğasını kaybeder. Burada yaratıcı yapıcı tezahüründe ortaya çıkıyor. Sol (ay) burun deliği sadece meditasyonu değil, aynı zamanda müzik, dans ve şiirden zevk almayı da teşvik eder. Ay nefesi acıyı yatıştırır, üzüntüleri giderir, bilinç güçlerini geri kazanmaya yardımcı olur. Ida-nadi, oyuncuyu ay düzlemine, bağlılık ve alıcılık düzlemine götürür.
+
+Yoganın genel kuralı şudur: Gündüzleri sol burun deliği, geceleri sağ burun deliği hakim olmalıdır. Ayın baskınlığını dengelemek için geceleri güneş enerjisinin baskınlığını ve güneş enerjisinin baskınlığını telafi etmek için gün boyunca ay solunumu gereklidir.

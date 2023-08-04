@@ -1,0 +1,9 @@
+# Plan 33. Duftplan (Gandha-Loka)
+
+Gandha bedeutet „Geruch“ und der Geruchssinn wird mit dem Erdelement und der physischen Ebene in Verbindung gebracht. Wenn der Spieler jedoch die vierte Stufe erreicht, verändert sich die Natur der Sinneswahrnehmungen und wird zu einem symbolischen Ausdruck des Göttlichen, der eine starke emotionale Ladung trägt. Nach ihrem Sudharma bieten Gläubige den Gottheiten Düfte in Form von Blumen oder Weihrauch an. Somit umfasst das vierte Chakra die Ebene der Aromen oder Gandha Loka.
+
+Im ersten Chakra wird der Spieler vom Geruch von Alkohol oder Benzin angezogen. Im zweiten Fall wird es durch verschiedene synthetische Mischungen mit starkem Geruch stimuliert. Auch im dritten Chakra herrscht eine Faszination für ähnliche künstliche Düfte vor, allerdings deutlich teurer. Beim Aufstieg auf die Ebene des Gleichgewichts erkennt der Spieler die Sinnlosigkeit alles Künstlichen und vermeidet aufregende unnatürliche Aromen.
+
+Hier, in Gandha Loka, schmeckt er beim Meditieren die göttlichen Düfte. Die Energieentwicklung führt zu Veränderungen auf chemischer Ebene im Körper des Spielers, und der Körper des Spielers gibt keine unangenehmen Gerüche mehr ab, sondern einen Geruch, der dem von Lotusblüten oder Sandelholz ähnelt.
+
+Um Verständnis zu entwickeln, werden Menschen, die sich mit spiritueller Praxis befassen, dazu angehalten, keine künstlichen Körperdüfte mehr zu verwenden, um deren natürlichen Geruch zu erkennen. Wenn der schlechte Geruch aus dem Körper verschwindet, wenn weder Exkremente noch Schweiß noch Atem mehr einen schlechten Geruch haben, bedeutet dies, dass die Energie eines Menschen das dritte Chakra überwunden hat und in die Gandha Loka – die Ebene der Aromen – eingetreten ist. Hier gibt es nur göttliche Gerüche. Der Spieler reinigt sein System ein für alle Mal von schlechten Gerüchen.

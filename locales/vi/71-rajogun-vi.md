@@ -1,0 +1,9 @@
+# Kế hoạch 71. Rajogun
+
+Rajoguna là hoạt động trong ý thức hay ý thức tích cực. Người chơi đã đạt đến hàng thứ tám, nhưng thất bại trong nỗ lực nhận thức Tâm thức vũ trụ, bị các lực của nghiệp, hoạt động đẩy về phía trước. Hoạt động này là nguyên nhân của mọi đau khổ, nó giả định trước sự hiện diện của một người hành động, người chắc chắn trở thành nạn nhân của những tham vọng và kỳ vọng của anh ta về thành quả của hoạt động. Bất kỳ trở ngại nào trên con đường đạt được mục tiêu mong muốn đều gây ra đau đớn và khổ sở. Sự chiếm ưu thế của rajoguna chắc chắn dẫn đến đau đớn và thống khổ.
+
+Trong định, người chơi hòa tan rajoguna thành sattvaguna và trở thành ánh sáng thuần khiết - sattva. Sự tồn tại của rajoguna ngăn cản việc đi vào trạng thái định, và tamas kéo người chơi trở lại Trái đất khi nghiệp lực kết hợp và tạo ra các tần số rung động mới, khi chúng hình thành, trở thành chủ đề của trò chơi.
+
+Là một guna, rajoguna cân bằng sattva và tamas. Sattva và tamas là những biểu hiện cực đoan của năng lượng dưới dạng gunas và có xu hướng thống trị cái này hơn cái kia. Rajas thiết lập sự cân bằng giữa các thái cực, nếu không có nó, thế giới của niềm vui và nỗi đau, tên và hình thức này không thể tồn tại. Không có gunas nào có thể tồn tại một mình.
+
+Rajguna chiếm ưu thế từ ba giờ sau khi mặt trời mọc cho đến buổi tối khi mặt trời bắt đầu lặn. Trong thời kỳ này, mọi thứ trên trái đất đều hoạt động, mọi thứ đều được đưa vào hoạt động nhằm duy trì sự sống. Rajogush thu hút sự chú ý của một người vào thế giới bên ngoài; nếu nó hướng vào bên trong, rajoguna trở thành một cuộc đối thoại nội bộ. Nếu không có sự chuyển đổi tamas thành sattva, trạng thái ý thức cao hơn là không thể đạt được. Tuy nhiên, một người có thể vẫn ở trong sattva trong các hoạt động bằng cách sử dụng rajoguna trong công việc sattvic.

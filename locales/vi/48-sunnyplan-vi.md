@@ -1,0 +1,15 @@
+# Kế hoạch 48. Kế hoạch năng lượng mặt trời (yamuna)
+
+Ở luân xa thứ sáu, người chơi thiết lập sự cân bằng giữa nam, nguyên tắc mặt trời và nữ, mặt trăng. Sự kết hợp hài hòa giữa các yếu tố này tạo ra một bản thân người quan sát không nam tính cũng không nữ tính, mà là sự kết hợp hài hòa của cả hai.
+
+Mặt phẳng năng lượng mặt trời là mặt phẳng năng lượng nam tính. Chừng nào người chơi còn cảm thấy mình là đàn ông hay đàn bà, thì anh ta không thể chấp nhận bản chất trái ngược trong mình, cũng như không một cầu thủ nào trên sân có thể đánh giá hành động của chính mình, vì anh ta gắn bó với trò chơi và bản thân mình. vai trò trong đó loại trừ khả năng nhận thức khách quan. Đồng thời, một người đóng vai trò là trọng tài, đứng ngoài trận đấu, không có bất kỳ lợi ích cá nhân nào. Anh ấy không liên kết với bất kỳ đội nào. Anh ấy là một người quan sát độc lập, người có thể nhìn thấy những sai lầm và vi phạm các quy tắc của người chơi.
+
+Khi một người chơi có rung động ở cấp độ của các luân xa thấp hơn bị ảnh hưởng bởi kế hoạch năng lượng mặt trời, xung lực đầu tiên của anh ta là sự hủy diệt, sức mạnh, sự tự nhận dạng. Quá nhiều ánh sáng mặt trời có thể đốt cháy toàn bộ hành tinh. Để cân bằng Mặt trời, Mặt trăng là cần thiết. Người chơi đến đây, đã trải qua các lĩnh vực trí tuệ và kiến thức đúng đắn, hiểu điều này và học cách cân bằng các dòng năng lượng của mình.
+
+Bên dưới luân xa thứ sáu, năng lượng mặt trời và mặt trăng đan xen với nhau, nhưng ở đây chúng hợp nhất và trở thành một. Cảm giác về một tổng thể duy nhất này đặc trưng cho bình diện của chủ nghĩa khổ hạnh.
+
+Để hiểu rõ hơn về bản chất của năng lượng mặt trời và mặt trăng và chức năng của chúng trong cơ thể con người, hãy xem xét ví dụ sau về pin điện. Giống như một cục pin, con người có cực dương và cực âm, cực dương và cực âm. Khi cả hai được đặt trong một dung dịch có khả năng dẫn điện, điện sẽ được tạo ra. Cực dương được tích điện dương và thường được làm bằng đồng. Đồng có màu đỏ và là kim loại năng lượng mặt trời liên quan đến dấu hiệu lửa của sao Hỏa. Đối với cực âm, kẽm được sử dụng - một kim loại mặt trăng, có màu trắng xanh rực rỡ. Các điện tích được thu thập xung quanh cực dương. Nó tượng trưng cho nguyên lý điện (nam) trong cơ thể con người.
+
+Trong cơ thể con người, dây thần kinh pingala giống như yamuna, mặt phẳng mặt trời. Năng lượng mặt trời liên quan trực tiếp đến lỗ mũi bên phải. Khi lỗ mũi bên phải chiếm ưu thế trong hơi thở, pingala chiếm ưu thế, điều này có liên quan đến những thay đổi nhỏ trong quá trình sinh hóa, hô hấp và mạch đập. Pingala là nguồn năng lượng cho mọi hoạt động sáng tạo. Khi một người ở dưới ảnh hưởng của nó, thiền định trở thành không thể. Trong các kỹ thuật pranayama của yoga, "hơi thở bằng năng lượng mặt trời" thường được quy định. Điều này có nghĩa là chỉ cần thở bằng lỗ mũi bên phải.
+
+Yamuna (Jamna) là một trong ba con sông linh thiêng gặp nhau tại Prayag Raj (nay là Allahabad) thuộc tỉnh Uttar Pradesh, miền bắc Ấn Độ. Krishna được sinh ra bên bờ sông Yamuna.

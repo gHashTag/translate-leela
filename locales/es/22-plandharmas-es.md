@@ -1,0 +1,13 @@
+# Plan 22. Plan del Dharma (Dharma-loka)
+
+Dharma es todo lo que es verdad, correcto. Es un principio ubicuo y en constante evolución, una fuerza más allá del tiempo y el espacio que guía la existencia humana. El dharma no cambia, pero sus manifestaciones pueden diferir en diferentes situaciones. Reside en las profundidades de la realidad, y una persona que sigue el flujo del Dharma siempre estará en armonía con la realidad de este mundo.
+
+Dharma es acción consciente, acción de acuerdo con la realidad del momento. Al tratar de actuar conscientemente, aprendemos a coordinar nuestras acciones con los principios de la existencia del cosmos. Entonces Dharma es acción basada en el conocimiento de estos principios.
+
+Hay diez reglas básicas del Dharma. Estos son la firmeza, el perdón, el dominio propio, la moderación, la pureza, el control de los sentidos y los órganos de acción, el intelecto, el conocimiento correcto, la verdad y la ausencia de ira.
+
+Lo que creas que es bueno para ti, será bueno para los demás. No hay mejor Dharma que las buenas acciones, y no hay peor Dharma que hacer daño. Las leyes del Dharma son más visibles cuando se aplican al comportamiento humano, pero estos principios son mucho más amplios que las reglas de conducta o las normas de moralidad y ética. Sirven solo como un reflejo de leyes más generales y completas.
+
+El Dharma del fuego es quemar, y el Dharma del agua es saciar la sed. El agua, de acuerdo con su Dharma, crea sabor y el fuego crea colores y formas. Dharma es la naturaleza esencial interna de una cosa o fenómeno. Siguiendo el Dharma, el jugador se eleva a planos superiores, pero tan pronto como se desvía, la energía comienza a descender, arrastrándolo. Las flechas en el tablero de juego representan los elementos del Dharma, o virtud, y las serpientes, los elementos del adharma, o vicios.
+
+Así, el Dharma es inmutable y está más allá de la forma, tomando una forma u otra para cada jugador. Para una persona que vive en un clima frío, el Dharma sería usar ropa abrigada; El dharma del hambriento es comer. Para un estudiante de Dharma, es meditar y seguir sadhana o disciplina espiritual. El dharma de un niño es el juego libre sin preocupaciones sobre el mundo espiritual. El dharma de un adulto es la aspiración y afirmación de uno mismo en el mundo del espíritu. Dharma es la verdad que mantiene la correcta relación entre todos los elementos de la creación. Dharma es el andamiaje que rodea el edificio de la personalidad en construcción. Hasta que se completa el edificio, los andamios soportan su estructura. Pero cuando el edificio ya puede sostenerse por sí mismo, el andamiaje se desmonta y se utiliza para crear nuevos edificios, aún inestables.

@@ -1,0 +1,17 @@
+# Plan 66. Plan de dicha (ananda loka)
+
+La conciencia se describe como verdad, ser y dicha: Sachchidananda. Ananda es la verdad suprema, la esencia del ser. En el proceso de creación, el "yo" se cubre gradualmente con cinco caparazones.
+
+De estos, el primero y más sutil es anandamaya kosha, el cuerpo del ser puro, la experiencia pura de la conciencia. Este es el cuerpo de la dicha, en cuyo centro reside la Conciencia Cósmica. Durante el período correspondiente a la creación, actúa como una conciencia individual.
+
+El siguiente es el nivel del ego y la inteligencia. Esta envoltura se llama vijnanamaya kosha. La palabra vijnana se compone de ee ("más allá") y jnana ("conocimiento"). Maya significa "compactado" y kosha significa "vaina" o cuerpo. Este cuerpo, asociado al conocimiento del más allá, es el ego (que se percibe a sí mismo como una realidad separada) y el intelecto (que evalúa todos los fenómenos).
+
+La tercera envoltura es la mente sensorial, manomaya-kosha (manas significa "mente"). En su obra, se apoya en las percepciones provenientes de los cinco sentidos: oídos, piel, ojos, lengua y nariz. En este nivel, la percepción del mundo material - el mundo de los deseos.
+
+Luego viene la cuarta envoltura - pranamaya-kosha, el cuerpo pránico, que consiste en prana - la fuerza vital que actúa a través de los cinco órganos de acción (aquí queda la única experiencia - la dicha. No es fácil obtener esta experiencia sin tener sabiduría y sin pasando por el camino de la autorrealización. La única alternativa es la ascensión gradual de un plano a otro con la atención enfocada en el Dharma, y se deben evitar las mordeduras de serpientes insidiosas) y los sistemas internos del cuerpo, como el cardiovascular, respiratorio , nervioso, y otros. A través de estos órganos y sistemas se llevan a cabo karmas (acciones).
+
+La quinta envoltura, la más burda, es annamaya kosha. La palabra anna significa “grano”, y en un sentido amplio es todo el alimento del que se construye el cuerpo físico de una persona, sus músculos, huesos, piel, sangre, semen y demás partes.
+
+La evolución del "yo" individual se realiza en orden inverso. El jugador parte del annamaya kosha y, cruzando las otras cuatro envolturas, se establece finalmente en el cuerpo de la dicha. Ananda es la característica principal de la conciencia. Esta cualidad es diferente del disfrute, la felicidad, la alegría o el deleite, que pueden ser explicados y apreciados por el intelecto. Todos estos son sólo estados relativos. Buddhi conduce a jnana, conocimiento que eleva a una persona al plano de la dicha. Ananda es la experiencia original: todas las demás son solo derivados de ella. Está más allá de los sentimientos ordinarios y reside constantemente en el corazón de cada jugador. Es imposible aprender sobre este estado de otra persona, incluso si lo ha experimentado: para esto necesitas tu propia experiencia. Un sordomudo no podrá explicarle con palabras cómo es el sabor de los dulces, solo los movimientos o los gestos pueden ayudar. Ananda no puede explicarse ni expresarse con palabras: se conoce en la experiencia interna y de ninguna otra manera.
+
+En Uranta-loka, el sentido de un "yo" separado desaparece. Permaneciendo en prakriti loka, el jugador adquiere conocimiento de la unidad interna de todos los objetos de los sentidos. El mundo percibido sensualmente se vuelve uno, así como todos los sentimientos y experiencias, basados en última instancia en la percepción de este mundo, se fusionan.

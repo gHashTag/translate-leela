@@ -1,0 +1,7 @@
+# Plan 34. Tat planı (rasa-loka)
+
+Alt çakralarda tat alma duyusu öncelikle bir duyusal algı biçimiyken, dördüncü çakrada estetik anlamda tat alma duyusuna rafine edilir. Bu düzleme giren kişi, fikir ve anlam dünyasına nüfuz eder. Bu ona duygusal deneyimlerin özü hakkında doğrudan, deneyimsel bilgi verir.
+
+Rasa aşktır, zevktir, zarafettir, eğlencedir, tattır, duygudur, güzelliktir, tutkudur, ruhtur. Şiirsel ilhamdır, şiirin özüdür. Irk, en saf haliyle sudur, tüm yaradılışı birbirine bağlayan güçtür.
+
+Üçüncü çakraya kadar, kelimenin tüm anlamlarında tat neredeyse tamamen daha düşük aktivite seviyelerine yöneliktir. Birinci çakrada, zevk tamamen para kazanma arzusuna tabidir. Çok fazla güç veren yiyecekler (özellikle et) ve hazır satın alınan yiyecekler, oyuncunun diyetinin temelini oluşturur. Çok miktarda tuz ve baharat kullanır. İkinci çakrada, enerji duygusallığa yönlendirilir. Burada oyuncu, yumurta, balık veya ginseng gibi gücü artıran yiyeceklerle ilgilenir. Üçüncü çakrada, her türlü güzel yiyeceği tüketerek tat alma hissini kendisi için arar. Kalp seviyesinde tat alma duyusu arındırılır. Oyuncu, tükettiği besinin gerçek mahiyetini anlamak için tuz ve tatlıları bırakıyor. Bir oyuncu zevk düzlemine girdiğinde, kelimenin tam anlamıyla zevki rafine edilir. Yemek, müzik, iletişim tercihleri kendi seviyesinden bağımsız olarak herkes için hoştur. Herkes tarafından tanınan, iyi bir tat uzmanı ve ustası olur. Böylece böyle bir duruma gelmek isteyen hayranları kendine çekiyor.

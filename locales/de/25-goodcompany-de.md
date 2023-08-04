@@ -1,0 +1,11 @@
+# Plan 25 Gute Gesellschaft (su-sang-loka)
+
+Ein Spieler, der im dritten Chakra beginnt, dem Weg des Dharma zu folgen, findet sich bald in einer Gesellschaft von Menschen wieder, die danach streben, ihre besten Eigenschaften zu entwickeln und zu verwirklichen. In einer solchen Umgebung merkt der Spieler, dass seine Energie durch die Bestätigung der Wahrheit seiner Suche und die Erkenntnis, dass es andere Menschen gibt, die das gleiche Ziel wie er anstreben, steigt. Dabei kommt wieder das Hauptanliegen des dritten Chakras ins Spiel – die Erweiterung des Egos. Diese positive Gemeinschaft wird Su-sang genannt.
+
+Für Menschen, die die Verwirklichung spiritueller Werte anstreben, nimmt eine solche Gemeinschaft die Form einer organischen Gemeinschaft an, die sich um einen spirituellen Lehrer mit entwickeltem vierten und fünften Chakra versammelt. Schlechte Gesellschaft versammelt sich normalerweise um einen charismatischen Anführer mit einem dominanten dritten Chakra. Der Spieler und die Kameraden um ihn herum streben danach, ihrem Lehrer nachzueifern und das, was der Lehrer gibt, in ihre Persönlichkeit zu integrieren.
+
+In guter Gesellschaft werden Laster nicht gepflegt. Die Spieler versuchen mit Hilfe des Lehrers, sich gegenseitig als Spiegel zu dienen, der sowohl positive als auch negative Trends widerspiegelt. Das Ergebnis einer schlechten Gesellschaft ist die Entwicklung von Selbstgefälligkeit, während ein Mensch in einer guten Gesellschaft die Fähigkeit zum Mitgefühl entwickelt.
+
+Eine gute Gesellschaft ist für die Spielerentwicklung unerlässlich. Hier erhält er die Möglichkeit, in einer Atmosphäre der Unterstützung, des Vertrauens und des Mitgefühls über seine früheren Identifikationen hinauszuwachsen. Die Überreste der Probleme, die durch den Einfluss der ersten beiden Chakren entstanden sind, verschwinden nach und nach, während der Spieler lernt, ihnen zu widerstehen und alle Aspekte seiner Persönlichkeit zu kontrollieren.
+
+Gute Gesellschaft ist ein positiver Aspekt des Wunsches nach Selbstidentifikation und Selbstbestätigung, der dem dritten Chakra innewohnt. Es gibt keine Hindernisse mehr auf dem Weg des Spielers zur vierten Ebene des Spiels, der Ebene der kosmischen Intelligenz und des Gleichgewichts.

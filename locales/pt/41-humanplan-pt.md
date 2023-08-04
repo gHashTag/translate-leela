@@ -1,0 +1,19 @@
+# Plano 41. O plano humano (jana-loka)
+
+Jana-loka, o quinto plano do quinto nível, é a morada dos siddhas (seres que atingiram um alto grau de desenvolvimento e possuem poderes que lhes permitem realizar ações "sobrenaturais" para pessoas nos planos inferiores) e santos , constantemente imerso na contemplação do Senhor Hari (um dos nomes de Vishnu).
+
+Jana-loka também é um refúgio para os habitantes de Svarga-loka e Mahar-loka durante a Grande Destruição de todas as formas e fenômenos existentes, após a qual o Universo é recriado. O elemento ar predomina aqui, e os corpos dos seres neste plano são compostos de pura sabedoria, não sujeitos a desejos. Este é o local da sabedoria divina, e todos os seus habitantes são marcados por esta elevada qualidade.
+
+Um jogador que ingressa no nível do quinto chakra, o plano humano, procura harmonizar sua vida com as leis divinas para manter o fluxo ascendente de sua energia. Para se estabelecer em sua experiência, ele sente a necessidade de se comunicar com os outros. É por isso que o quinto chakra é a fonte de todos os grandes ensinamentos. Sua localização na garganta, próxima às cordas vocais, enfatiza a importância da comunicação para um músico cujas vibrações estão neste nível.
+
+O jogador se estabelece neste plano devido ao correto entendimento das energias vitais e à experiência adquirida durante a passagem pelos campos do purgatório, clareza de consciência e jnana. Sua sabedoria requer sincronização com as leis planetárias, e a compreensão do prana vital torna isso de excepcional importância. O desequilíbrio das energias é reflexo da falta de harmonia com as leis planetárias. No entanto, sem o trabalho coordenado dessas energias, a sincronização é impossível.
+
+A compreensão do jogador sobre a presença divina em toda a criação, adquirida durante a jornada pelo quarto chakra, faz com que ele busque o Divino dentro de si, e assim sua atenção se volta para o mundo dos sons, agora assumindo um novo significado. Ele se torna capaz de perceber sons internos anteriormente inaudíveis, pois sua atenção foi atraída para os fenômenos do mundo circundante. Voltando sua atenção e sentimentos para dentro, ele ouve o som de um coração batendo e sangue fluindo em suas veias. Esses sons estimulam seus nervos, o que, por sua vez, expande sua percepção.
+
+As palavras são conhecidas de que todo conhecimento está dentro, mas elas se tornam realidade apenas no quinto chakra. A abertura dos nervos produz sons internos. Essas vibrações, por sua vez, afetam a energia psíquica, e isso se manifesta em uma mudança nos processos químicos do corpo. Como resultado, a psique do jogador se abre para novas dimensões de experiência. O entendimento resultante é conhecido como Conhecimento.
+
+No quarto chakra, o jogador ganha experiência, mas carece de compreensão. O aumento de energia que acompanha a transição do quarto para o quinto chakra eleva a consciência e novas perspectivas são apresentadas ao jogador. Ao nível do primeiro chakra, existem apenas quatro direções de movimento de energia, representadas por pétalas na representação gráfica deste chakra. A segunda tem seis. A transição do segundo chakra para o terceiro abre quatro novas direções, e mais duas são adicionadas durante a transição do terceiro para o quarto - doze no total. Dezesseis direções operam no quinto chakra, expandindo radicalmente a compreensão da natureza do jogo. Esta nova perspectiva é o que dá origem a todos os grandes ensinamentos religiosos.
+
+Se um jogador que atingiu o quinto chakra for membro de uma tradição espiritual, ele pode se tornar um novo elo em seu desenvolvimento. Ou ele pode deixar esse ensinamento e se tornar um pensador, vidente, profeta ou santo independente.
+
+Neste plano, o jogador aprende o verdadeiro significado do que significa ser humano. Freqüentemente, isso é alcançado diretamente do nível do terceiro chakra com uma flecha saindo do campo do serviço altruísta.

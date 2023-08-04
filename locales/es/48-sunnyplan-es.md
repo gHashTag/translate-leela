@@ -1,0 +1,15 @@
+# Plan 48. Plan solar (yamuna)
+
+En el sexto chakra, el jugador establece un equilibrio entre el principio masculino, solar, y el femenino, lunar. Esta fusión armoniosa de elementos crea un yo observador que no es ni masculino ni femenino, sino una combinación armoniosa de ambos.
+
+El plano solar es el plano energético masculino. Mientras el jugador se sienta hombre o mujer, no es capaz de aceptar la naturaleza opuesta en sí mismo, así como ningún jugador en el campo es capaz de evaluar sus propias acciones, ya que su apego al juego y su papel en él excluye la posibilidad de percepción objetiva. Al mismo tiempo, una persona que actúa como árbitro, estando fuera del juego, está libre de cualquier interés personal. No está afiliado a ninguno de los equipos. Es un observador independiente que puede ver los errores y violaciones de las reglas que cometen los jugadores.
+
+Cuando un jugador cuyas vibraciones están al nivel de los chakras inferiores es afectado por el plan solar, su primer impulso es la destrucción, la fuerza, la autoidentificación. Demasiada luz solar podría quemar todo el planeta. Para equilibrar el Sol, se necesita la Luna. El jugador que llega aquí, habiendo pasado por los campos de la sabiduría y el conocimiento correcto, comprende esto y aprende a equilibrar los flujos de sus energías.
+
+Debajo del sexto chakra, las energías solar y lunar están entrelazadas entre sí, pero aquí se fusionan y se vuelven una. Este sentimiento de un todo único caracteriza el plano del ascetismo.
+
+Para comprender mejor la naturaleza de la energía solar y lunar y su función en el cuerpo humano, considere el siguiente ejemplo de una batería eléctrica. Como una batería, los seres humanos tenemos un ánodo y un cátodo, polos positivo y negativo. Cuando ambos se colocan en una solución capaz de conducir corriente, se produce electricidad. El ánodo tiene carga positiva y generalmente está hecho de cobre. El cobre es de color rojo y es un metal solar asociado con el signo de fuego de Marte. Para el cátodo, se usa zinc, un metal lunar, de un color blanco azulado brillante. Las cargas eléctricas se acumulan alrededor del ánodo. Simboliza el principio eléctrico (masculino) en el cuerpo humano.
+
+En el cuerpo humano, el nervio pingala es lo mismo que el yamuna, el plano solar. La energía solar está directamente relacionada con la fosa nasal derecha. Cuando la fosa nasal derecha domina en la respiración, predomina el pingala, que se asocia con ligeros cambios en el curso de los procesos bioquímicos, la respiración y el pulso. Pingala es la fuente de energía para todas las actividades creativas. Cuando uno está bajo su influencia, la meditación se vuelve imposible. En las técnicas yóguicas de pranayama, a menudo se prescribe la "respiración solar". Esto significa simplemente respirar por la fosa nasal derecha.
+
+El Yamuna (Jamna) es uno de los tres ríos sagrados que se encuentran en Prayag Raj (ahora Allahabad) en la provincia de Uttar Pradesh, al norte de la India. Krishna nació a orillas del Yamuna.

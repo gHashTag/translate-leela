@@ -1,0 +1,11 @@
+# Rencana 14. Astral Plane (Bhuvar Loka)
+
+Bhuvar-loka minangka pesawat sing ngetutake fisik lan ana hubungane karo, nanging kalebu materi sing luwih halus. Ing katrangan bhu-loka (kotak kaping gangsal ing baris kapisan), sampun katerangaken, bilih dhasaripun wonten pitung bidang, utawi loka, ingkang nggambaraken kawontenan utawi drajat pangrembakaning kapribaden. Ing tingkat bhuvar-loka, uga ing chakra kapindho, unsur banyu ndominasi. Kaya ing awak manungsa chakra kapindho dumunung ing sadhuwure sing pisanan ing sadawane utomo, bidang astral dumunung ing ndhuwur fisik ing "kolom balung mburi" saka papan dolanan.
+
+Iki minangka bidang impen, fantasi lan imajinasi sing dhuwur. Pamuter sing teka ing kene ngerti keragaman sing luar biasa ing saindenging jagad. Sadurunge dheweke mbukak gambar macem-macem kemungkinan lan tujuan sing bisa digayuh. Kesadaran iki nyengkuyung pemain dadi luwih melu urip. Kabutuhan materi sing ana hubungane karo chakra sing sepisanan wis kepenak, lan saiki dheweke weruh yen urip luwih menarik lan maneka warna tinimbang sing bisa dibayangake, lagi sibuk golek mata pencaharian.
+
+Saiki dheweke wis aman finansial, sukses ora diragukan. Dadi ing gelombang rasa percaya diri, imajinasi kreatif dheweke dirilis. Nanging, fantasi mbutuhake energi luwih akeh tinimbang aktivitas manungsa liyane. Pamuter ngarahake kabeh sumber daya kanggo mbangun kastil ing udhara. Dheweke ngupaya nyingkirake kasunyatan fisik kanggo nggayuh kesenengan, ing kesenengan lan identifikasi karo macem-macem klompok wong. Nalika getaran pemain ana ing level iki, kekuwatan motivasi utama ing uripe tetep dadi kenikmatan saka karya indra. Iki minangka rencana "anggur, wanita lan lagu". Seksualitas dadi sarana utama ekspresi diri, sing diiringi mundhut energi vital sing gedhe.
+
+Pamuter diubengi dening sensasi, emosi, gagasan lan macem-macem nuansa makna, sing digunakake minangka basis kanggo fantasi. Saka kene, saka chakra kapindho, kabeh jinis kreatifitas asale, tenaga pendoronge yaiku fantasi.
+
+Bidang astral minangka dimensi ruang psikis sing ana ing antarane bumi lan langit. Pamuter wis ngalahake pesawat kadonyan, lan fantasi menehi idea saka swarga. Bebaya dumunung ing kasunyatan sing fantasi njupuk pamuter adoh saka kasunyatan, draining energi, lan bisa tetep unfulfilled.

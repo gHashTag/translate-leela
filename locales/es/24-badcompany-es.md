@@ -1,0 +1,9 @@
+# Plan 24. Mala compañía (ku-sang-loka)
+
+En busca de una característica de autoidentificación del tercer chakra, el jugador busca un grupo de otras personas que puedan apoyarlo. Se da cuenta de que solo es demasiado débil para lograr sus planes, y está buscando a otros que sigan un camino similar para crear un grupo de personas con ideas afines.
+
+Si sus vibraciones son desfavorables, cae en la sociedad de personas que se desvían de las leyes del Dharma en sus acciones. Esto es "mala compañía", y el jugador picado por la serpiente vuelve al primer chakra en el campo de la vanidad.
+
+En tal sociedad, los malos rasgos de carácter del jugador son ignorados o, peor aún, alabados. La fuerza generada por el grupo sirve como caldo de cultivo para el ego y la importancia personal del jugador. Pensando que sus acciones están de acuerdo con el Dharma, constantemente se engaña a sí mismo. Y cuanto más se desvía, más fuerte se vuelve su presunción. Pronto puede descubrir que está nuevamente al nivel del primer chakra y debe buscar purificación o entretenimiento.
+
+En malas compañías, se suele mantener la opinión de que la causa de los problemas personales es el entorno o la sociedad. El ejemplo más llamativo son los grupos de terroristas que recurren a cualquier medio para lograr sus objetivos. Justificando sus acciones con objetivos elevados, solo se engañan unos a otros. Piensan que matar a ciertas personas puede satisfacer sus deseos. Creen ciegamente que sus metas son las únicas metas correctas para todos. Esta desviación del Dharma es un grave abuso de poder, uno de los principales problemas a nivel del tercer chakra. La asociación con malas compañías es un adharma que conduce a la caída. Solo siguiendo cuidadosamente los principios del Dharma puede el jugador evitar esta trampa.

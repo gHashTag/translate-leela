@@ -1,0 +1,9 @@
+# Kế hoạch 1. Sinh (janma)
+
+Sinh là lối vào trò chơi nghiệp chướng. Karma được xác định bởi số điểm lăn trên xúc xắc và tính cách của người chơi được thể hiện trên sân bằng một số biểu tượng di chuyển từ ô vuông này sang ô vuông khác theo lô của nó. Trước khi sinh ra, một người đã ra khỏi trò chơi. Sau khi được sinh ra, anh ta trở thành đối tượng của luật nghiệp. Thế gian này là xứ nghiệp.
+
+Dục vọng khiến người chơi chấp nhận gánh nghiệp. Nếu một người không muốn chơi, anh ta sẽ không làm điều đó. Tuy nhiên, trò chơi nằm ở chính bản chất của ý thức. Lúc đầu không có trò chơi, nhưng ý thức, theo bản chất của nó, không thể bất động, không có trò chơi. Và thế là... "Hãy có ánh sáng!" Hãy để có một trò chơi! Và cái Tuyệt đối từ Một biến thành nhiều. Bước vào trò chơi, người chơi lặp lại quá trình sáng tạo ban đầu, khi Đấng Tuyệt đối thức tỉnh sau trạng thái không hoạt động và bắt đầu một trò chơi vũ trụ, trong đó mỗi chúng ta là một mô hình thu nhỏ. Khi đã quyết định chơi thì người chơi phải tuân theo luật chơi (Pháp) và lô đề.
+
+Người chơi chỉ có thể tham gia trò chơi sau khi ném được sáu quả. Năm yếu tố sáng tạo (ête, không khí, lửa, nước và đất) được kết nối với thứ sáu - ý thức của người chơi. Sáu bắt đầu chuyển động của biểu tượng của người chơi trên sân. Mỗi lần sinh mở ra một trò chơi mới và mục tiêu của mỗi trò chơi là cùng một Ý thức vũ trụ. Không có phương hướng, mục tiêu, động lực nào khác trong trò chơi này. Trò chơi tồn tại để hoàn thành chu kỳ. Sinh là chính. Nó mở ra những cánh cửa của trò chơi và người chơi bắt đầu cuộc hành trình bất tận của mình, hành trình đi đến sự trọn vẹn.
+
+Đơn vị là gốc của mọi sáng tạo. Giống như tất cả các số lẻ, nó thuộc họ Mặt trời. Đơn vị có mối quan hệ đặc biệt với Mặt trời, vì chính nó đã sinh ra hành tinh của chúng ta. Đơn vị tượng trưng cho một người độc lập, một quyết định độc lập, một cuộc sống độc lập, tìm kiếm một cái gì đó mới, khác thường, nguyên bản.

@@ -1,0 +1,9 @@
+# Plan 17. Merhamet (daya)
+
+Merhamet, oyuncunun içindeki ilahi niteliklerden biridir, o kadar güçlüdür ki, onu ikinci çakradan sekizinci çakraya, Mutlak düzlemine yükseltir. Merhamet, empati kapasitesini açar, böylece ego o kadar yoğun bir duygu dalgası tarafından süpürülür ki, sevinç gözyaşları gözleri doldurur ve kalp hayranlık ve kozmik aşkla atar. Bir an için oyuncu İlahi olanla bir olur.
+
+Merhamet, ikinci çakranın özelliği olan hayali olasılıkları görme yeteneğinin en olumlu tezahürlerinden biridir. Merhamet durumu, eylemleri oyuncuya yönelik olanlara empati yöneltildiğinde yaratılır. Ve karşılık vermek yerine ("göze göz"), "diğer yanağını döndürür."
+
+Hayal gücü, oyuncunun diğer insanların eylemleri için olası nedenleri hayal etmesini sağlar. Karşısındakinin de kendisi veya bir başkası tarafından incitilebileceğini veya gücenebileceğini görür. Hem kendisinin hem de diğerlerinin, anlamı ve kuralları onların bugünkü anlayış düzeylerinin çok ötesinde olan kozmik bir oyunun oyuncuları olduğunu bilir. Bir kişinin başkalarının eylemlerini yargılamasına izin veren başka, daha yüksek durumlar olduğunu fark eder. Bu şefkatli anlayış, karşısındakini affetmesini sağlar. Bu, bilincini kendini tanımlamadan kurtarır ve Mutlak düzlemine uçar.
+
+Sanskritçe bir söz vardır: "Daya (şefkat), Dharma'nın (doğruluk) temelidir." Bu nitelik olmadan gerçek dindarlık imkansızdır. Merhamet, nezaket, sabır her zaman bir insanda iyi bir başlangıcın gelişmesine katkıda bulunmuş, duygularını arındırmasına, karakter oluşturmasına ve etik gelişimine yardımcı olmuştur. Kişilik engelleri yıkılır ve oyuncunun zihni İlahi Olan'ın bir yansıması haline gelir. Merhamet, kendini terk etmektir. Bununla birlikte, oyuncuyu birikmiş karmalarından kurtaramaz, bu nedenle, görevlerini tamamlamak için dünyaya dönmelerine izin vererek, tamogun meydanındaki yılan tarafından sokulana kadar zarı yuvarlamaları gerekir.

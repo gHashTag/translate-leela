@@ -1,0 +1,11 @@
+# Rencana 4. Rakus (lobha)
+
+Amarga rasa pamisah sing dumadi ing saben lair, pemain wiwit ngupaya kepuasan. Supaya bisa nindakake fungsi apa wae ing donya iki, pemain kudu mesthekake yen kabutuhan fisik bisa dicukupi. Kanggo melu dolanan, dheweke kudu mangan, duwe papan kanggo ngaso, sandhangan. Kaslametan material minangka perhatian utama pemain sing ana ing tingkat chakra pisanan.
+
+Nalika pamuter nyampur raos dissatisfaction karo perlu kanggo kaslametané materi, srakah katon. Sanajan wis nampa kabeh sing dibutuhake kanggo urip, dheweke isih rumangsa kosong. Kabeh sing wis disinaoni yaiku njaga eksistensi fisik. Saiki dheweke wiwit nggunakake katrampilan kaslametan dhasar iki kanggo entuk barang-barang material sing luwih akeh kanthi pangarep-arep bisa nggayuh kepuasan. Nanging, luwih akeh dheweke entuk, kepinginan kanggo akuisisi saya kuwat. Rasa kekosongane tekan tingkat gupuh, tumindake tambah sembrono. Legenda Raja Midas lan 'sentuhan emas' minangka conto klasik saka akibat saka rakus. Kepinginan kanggo kesejahteraan materi iki uga dadi sabab saka kabeh peperangan.
+
+Keserakahan asale saka rasa ora aman, lan rasa ora aman asale saka kesalahan identifikasi diri. Yen pemain ora pracaya marang Gusti Allah, uga ora pracaya ing Providence. Kandhang srakah iku buntute ula meri. Greed ndadekake pemain rabun cedhak. Dheweke ora ngerti yen srakah pungkasane ora ana gunane. Cepet utawa mengko, kabeh barang material tetep ana ing mburi ambang: nalika kita nyerahake kanthi karsane dhewe, utawa nalika pati teka. Nanging, srakah uga bisa dadi kabecikan ing dalan wutah spiritual yen wong dadi rakus kanggo pengalaman spiritual, kawruh lan katresnan.
+
+Pemain sing mlebu ing lapangan srakah mbukak gerbang kesadaran kanggo maya, nesu lan kabeh masalah liyane saka chakra pisanan.
+
+Simbol kanggo papat iku kothak makili papat dimensi lan papat titik cardinal. Nomer papat nglambangake unsur bumi. Minangka wakil saka kulawarga nomer genap, papat cenderung kanggo jangkep. Kepinginan kanggo kasampurnan ing bidang materi, dijupuk menyang watesan, dadi rakus. Ing numerologi Veda, nomer papat dikuwasani dening Rahu, simpul lunar lor, uga dikenal minangka Kepala Naga. Ing numerologi Kulon, angka iki dikuwasani déning Uranus.

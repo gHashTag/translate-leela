@@ -1,0 +1,11 @@
+# Rencana 45 Kawruh sing Tepat (suvidya)
+
+Yen jnana mujudake kasunyatan, "ilmu sing bener" kalebu kesadaran lan prilaku (laku). Kombinasi iki ngangkat pemain menyang pesawat kawolu, lapangan apik kosmik. Lan saiki mung siji langkah misahake dheweke saka gol. Dheweke ngerti awake dhewe minangka makrokosmos ing mikrokosmos, segara sing ditutupi ing tetes.
+
+Ing tradhisi Hindhu, ana patbelas aspek vidya (kawruh), kanthi simbolis diwakili minangka spokes ing rodha bebener. Kawruh patbelas iki ngemot kabeh sing kudu dingerteni lan dimangerteni dening manungsa. Iki minangka papat Weda, enem Shastra, Dharma, Nyaya (logika), Mimamsa (pangerten kritis) lan Purana. Nanging ing masyarakat industri, kawruh njupuk tampilan anyar. Saiki kawruh mung sing bisa dilebokake ing komputer, yaiku informasi. Nanging pikiran manungsa luwih saka komputer. Lan kawruh sing bener mbutuhake pengalaman.
+
+Kawruh sing bener nambahake dimensi anyar kanggo jnana, kesadaran manunggaling jaman biyen, saiki lan mangsa ngarep, sing minangka aspek saka kontinum wektu siji. Nalika kawicaksanan bisa ndhikte siji prilaku, kawruh sing bener bisa uga mbutuhake sebaliknya. Para sakabat, dipandu dening kawicaksanan, nolak Kristus. Miturut kawruh sing bener, Kristus ngidini dheweke mati ing kayu salib, ngerti yen prinsip-prinsip subtle tansah ngluwihi nilai materi.
+
+Kawruh sing bener iku panganan eling, nglindhungi saka ula kurang religiusitas, sedhih, drengki, iri, ora ngerti, kekerasan, pamrih, tamas lan inersia pikiran negatif. Kawruh sing bener nguatake swara batin. Suvidya nandhang macan pikiran lan ngowahi alas pepenginan dadi taman evolusi sing mekar. Tembung vidya asale saka tembung vid, tegese "ngerti". Wujud kawruh sing paling kuna yaiku kahanan samadhi, ing ngendi jawaban kasebut liwat interaksi langsung karo kasunyatan. Mula kabeh kawruh babagan tradhisi Hindhu diarani darshana (tembung darshana tegese "sesanti" utawa "pengalaman"). Kawruh sejati diwujudake kanthi nggabungake lengkap subyek sing ngerti lan obyek sing dingerteni. Iki vidya, kawruh sing bener.
+
+Bidang kawruh sing bener ngrampungake wacana chakra kaping lima, baris kaping lima saka game kasebut. Ing tataran iki, pamuter tekan kesadaran kebak kamanunggalan karo kosmos, kang merges karo kasunyatan pokok lan munggah menyang bidang Rudra (Shiva), bidang apik kosmik.

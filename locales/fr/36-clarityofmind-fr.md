@@ -1,0 +1,7 @@
+# Plan 36. Clarté d'esprit (svaccha)
+
+La clarté d'esprit est la lumière qui remplit le joueur lorsqu'il quitte le quatrième niveau pour entrer dans le cinquième, où l'humain devient humain. En sanskrit, le mot svaccha signifie "pur, clair, transparent". Cette transparence est le résultat du processus de purification que traverse le joueur dans le naraka loka.
+
+La transparence signifie aucune obstruction à la lumière. Lorsque tous les doutes sont dissipés, le voile de l'intellect aveugle se dissout et est remplacé par la lumière pure et puissante de la sensation intérieure. La compréhension intellectuelle qui domine les trois premiers centres quitte la scène. Ici, le raisonnement est vu comme un défaut, une maladie de la conscience. Lorsque la conscience s'identifie à la compréhension, elle souffre de la maladie de la rationalité, des chaînes de l'intellect. La dévotion et la foi aident à surmonter cet état, et le joueur entre dans le niveau de l'Être.
+
+En entrant dans le champ de svaccha, le joueur devient pur et transparent. Il a été submergé par des doutes, à cause desquels il s'est éloigné du chemin de la vraie religiosité ou s'est retrouvé au purgatoire. Mais cette expérience lui a donné une compréhension de sudharma. Il développa de bonnes tendances et sanctifia sa vie. Il a visité les plans de l'arôme et du goût et est maintenant prêt à rejoindre le flux ascendant d'énergie qui l'emmène au cinquième chakra.

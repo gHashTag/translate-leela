@@ -1,0 +1,11 @@
+# Plan 45 Doğru Bilgi (suvidya)
+
+Eğer jnana gerçeğin farkına varmaksa, "doğru bilgi" farkındalığı ve davranışı (uygulama) içerir. Bu kombinasyon, oyuncuyu kozmik iyilik alanı olan sekizinci düzleme yükseltir. Ve şimdi onu hedeften yalnızca bir adım ayırıyor. Kendisinin bir mikro kozmosta bir makro kozmos, bir damlayla çevrelenmiş bir okyanus olduğunun farkındadır.
+
+Hindu geleneğinde, vidya'nın (bilgi) on dört yönü vardır ve bunlar sembolik olarak hakikat çarkında tekerlekler olarak temsil edilir. Bu on dört bilgi alanı, bir kişinin gerçeği bilmesi ve anlaması için ihtiyaç duyduğu her şeyi içerir. Bunlar dört Veda, altı Shastra, Dharma, Nyaya (mantık), Mimamsa (eleştirel anlayış) ve Puranalardır. Bununla birlikte, endüstriyel bir toplumda bilgi yeni bir görünüm kazanır. Artık bilgi, yalnızca bir bilgisayara girilebilen şeydir, yani bilgidir. Ancak insan zihni bir bilgisayardan daha fazlasıdır. Ve doğru bilgi deneyim gerektirir.
+
+Doğru bilgi, tek bir zaman sürekliliğinin veçheleri olan geçmişin, bugünün ve geleceğin birliğinin farkındalığı olan jnana'ya yeni bir boyut katar. Bilgelik bir davranışı dikte edebilirken, doğru bilgi tam tersini gerektirebilir. Bilgeliğin rehberliğinde öğrenciler Mesih'i reddettiler. Doğru bilgiye göre Mesih, ince ilkelerin her zaman maddi biçimlerin değerinden daha ağır bastığını bilerek çarmıhta ölmesine izin verdi.
+
+Doğru bilgi, bilincin gıdasıdır ve onu dinsizlik, üzüntü, kıskançlık, kıskançlık, cehalet, şiddet, bencillik, tamas ve negatif zihnin eylemsizliği yılanlarından korur. Doğru bilgi iç sesi güçlendirir. Suvidya, zihnin kaplanını evcilleştirir ve arzu ormanını çiçek açan bir evrim bahçesine dönüştürür. Vidya kelimesi, "bilmek" anlamına gelen vid kökünden gelir. En eski bilgi biçimi, cevabın gerçeklikle doğrudan etkileşim yoluyla geldiği samadhi durumudur. Bu nedenle, Hindu geleneğinin tüm bilgilerine darshana denir (darshana kelimesi "vizyon" veya "deneyim" anlamına gelir). Gerçek bilgi, idrak eden öznenin ve idrak edilen nesnenin tamamen birleşmesi ile kendini gösterir. Bu vidya, doğru bilgidir.
+
+Doğru bilgi alanı, oyunun beşinci sırası olan beşinci çakranın geçişini tamamlar. Bu aşamada oyuncu, kozmos ile birliğinin tam farkındalığına ulaşır, nihai gerçeklikle birleşir ve kozmik iyilik planı olan Rudra (Shiva) planına yükselir.

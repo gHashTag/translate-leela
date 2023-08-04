@@ -1,0 +1,15 @@
+# Plan 46 Discrimination (Viveka)
+
+Tout ce qui existe dans le monde phénoménal n'est pas la réalité. Les objets de perception changent avec le temps, ils se développent, grandissent et s'effondrent. Mais ces objets de perception sensorielle créent une illusion complète de la réalité. Une personne attache une grande importance au monde objectif et développe le désir de s'identifier aux objets de perception sensorielle. Viveka ou discrimination est le pouvoir qui l'empêche de tomber dans le désir d'attachement matériel. C'est la voix de la sagesse intérieure du joueur, qui lui permet de distinguer le subtil du grossier, de voir le noumène dans chaque phénomène.
+
+Viveca ne pouvait pas apparaître dans le jeu plus tôt. Le joueur ne peut arriver ici qu'en passant par le champ de la connaissance correcte (45). Si le joueur touche la flèche de la bonne connaissance, il monte immédiatement dans le plan du bien cosmique. Sinon, il doit recourir à la faculté de discernement pour déterminer la suite du jeu.
+
+Les éléments de base du monde des phénomènes se situent à des niveaux allant jusqu'au cinquième chakra. Ce sont les blocs de construction qui forment la base de toutes les manifestations grossières. La présence de ces éléments détermine le niveau vibratoire du joueur tant que ses actions proviennent de ces chakras. Mais le sixième chakra est en dehors de ces éléments. Désormais, la maya manifestée n'affecte que légèrement la conscience du joueur.
+
+Lorsqu'un joueur entre dans le champ de discernement, il est immédiatement transporté dans le plan du bonheur situé dans le septième chakra. Dans le septième chakra, le joueur est au-delà de toute forme de violence, qui est la cause du vrai bonheur. Mais le sixième chakra est toujours là, et la discrimination est nécessaire ici. Le sixième chakra est traditionnellement appelé le "troisième œil". Nos deux yeux ne voient que ce qui existe, ce qui était dans le passé et ce qui est dans le présent. Et le "troisième œil" donne le pouvoir de discerner les opportunités futures dans le jeu, et c'est l'une des propriétés précieuses du sixième chakra : la capacité de pénétrer dans le futur. Et ce n'est pas un fantasme, mais une perception directe de ce qui va se passer.
+
+La discrimination Viveka n'est pas quelque chose qui se développe en nous en une vie éphémère. Il utilise l'expérience accumulée par des générations de grandes masses de personnes et contenue dans l'inconscient collectif. Ainsi, le joueur a à sa disposition un référentiel d'expérience, qui est maintenant à un niveau conscient.
+
+La discrimination est l'enseignant qui se trouve au sommet de la tête de chaque joueur (le septième chakra) et les guide dans la vie. Le joueur peut contourner les lois sociales et politiques, mais échapper à la voix de Viveca est finalement impossible.
+
+Jusqu'à ce que le joueur atteigne le sixième chakra, le mot "discrimination" signifie peu pour lui. Mais le passage par le sixième chakra est déterminé par la chute des dés du karma et les incitations de la voix intérieure de Viveka.

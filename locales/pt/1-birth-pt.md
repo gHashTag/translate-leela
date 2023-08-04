@@ -1,0 +1,9 @@
+# Plano 1. Nascimento (janma)
+
+O nascimento é a entrada para o jogo cármico. O karma é determinado pelo número de pontos lançados no dado, e a personalidade do jogador é representada no campo por algum símbolo que se move de quadrado em quadrado de acordo com seu lote. Antes do nascimento, uma pessoa está fora do jogo. Tendo nascido, ele se torna sujeito às leis do carma. Este mundo é a terra do karma.
+
+O desejo leva o jogador a aceitar o fardo do carma. Se uma pessoa não deseja jogar, ela não o fará. No entanto, o jogo está na própria natureza da consciência. No início não havia jogo, mas a consciência, de acordo com sua natureza, não podia ficar imóvel, sem jogo. E assim... "Haja luz!" Que haja um jogo! E o Absoluto de Um se transformou em muitos. Entrando no jogo, o jogador repete o processo original de criação, quando o Absoluto despertou da inatividade e iniciou um jogo cósmico em que cada um de nós é um microcosmo. Tendo decidido jogar, o jogador deve obedecer às regras do jogo (Dharma) e ao lote cármico.
+
+O jogador só pode entrar no jogo depois de conseguir lançar um seis. Os cinco elementos da criação (éter, ar, fogo, água e terra) estão conectados ao sexto - a consciência do jogador. O seis inicia o movimento do símbolo do jogador pelo campo. Cada nascimento abre um novo jogo, e o objetivo de cada jogo é a mesma Consciência Cósmica. Não há outras direções, objetivos, motivações neste jogo. O jogo existe para completar o ciclo. O nascimento é a chave. Abre as portas do jogo, e o jogador inicia sua jornada sem fim, a jornada para a completude.
+
+A unidade é a raiz de toda a criação. Como todos os números ímpares, pertence à família do Sol. A unidade tem uma relação especial com o Sol, pois foi ele que deu origem ao nosso planeta. A unidade simboliza uma pessoa independente, uma decisão independente, uma vida independente, a busca por algo novo, incomum, original.
